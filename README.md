@@ -1,1 +1,0 @@
-Clever Boys Qom
